@@ -1,4 +1,4 @@
-# 
+# Turbo isolated-margin trading bot add-ons for Mac OS | Custom isolated-margin trading bot add-ons for PC Windows. Featuring risk management and backtesting engine — optimized for maximum performance on every platform.
 
 
 
